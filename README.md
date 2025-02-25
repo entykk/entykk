@@ -5,11 +5,11 @@
 # Nice to meet youuu, 
 ### welcome to my page !! 
 
-Hii im charlie!!
+Hii i'm Tyzias or Charlie!!
 
 ![tumblr_888e2db0d46eb746c4d726eeeda2ca50_8443d340_250](https://github.com/user-attachments/assets/39971230-7bc3-4545-a520-d17b45540627)
 
-#### im transmasculine, as well as demisexual and biromantic
+#### i'm transmasculine, as well as demisexual and biromantic
 
 i have a moirail/qpp, and im super duper pale for him!!
 
@@ -17,7 +17,7 @@ i have a moirail/qpp, and im super duper pale for him!!
   If i know u pretty well u can totally use nicknames, otherwise i'd rather you refrain
 
 ## MAIN FRONTS
--  CHARLIE (me!) - he / star - Host + Memory Holder 
+-  CHARLIE - he / star - Host + Memory Holder 
 
 -  TYZIAS  - she / he - Stabilizer + Internal Self Helper 
 
