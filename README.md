@@ -151,7 +151,7 @@ proshippers/actually problematic comshippers (doesn't apply to human/nonhuman), 
 ![tumblr_1287969823dba6ed99fb1b03273ec3b7_ea2690da_1280](https://github.com/user-attachments/assets/7fcfdf93-2ad4-4d80-9919-f9d9ed7cf5fb)
 
 
-## Hi there 👋
+## all graphics are ripped directly from tumblr
 
 <!--
 **entykk/entykk** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
